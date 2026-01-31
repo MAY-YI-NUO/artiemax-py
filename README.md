@@ -1,1 +1,1 @@
-ArtieMax Harware informations
+ArtieMax Hardware informations
